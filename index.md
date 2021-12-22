@@ -1,6 +1,6 @@
-# Bill Kwong Lung Fong
+# Bill Kwong Lung Fong 方光龍
 
-## October 30, 1944 - December 18, 2021
+## October 30, 1944 - December 18, 2021 1944年10月30日至2021年12月18日
 
 Services will be held on Tuesday, December 28th, 2021. Visitation will be from
 10 a.m. to 11 a.m. Tuesday at Woodlawn Funeral Chapel. Graveside services will
