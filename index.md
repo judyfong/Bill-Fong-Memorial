@@ -7,6 +7,19 @@ Services will be held on Tuesday, December 28th, 2021. Visitation will be from
 be held from 11 a.m. to Noon Tuesday at Woodlawn Memorial Park, 1000 El Camino
 Real, Colma, CA.
 
+If you are interested in sending flowers or anything else , please send them to Bill Fong at
+Woodlawn Funeral Chapel by Tuesday, December 28th, 2021 11 a.m.
+
+### Florist Shops
+
+* Canton Flower Shop - 118 Waverly Pl, San Francisco, CA 94108
+* New Lai Wah Florist - 741 Jackson St, San Francisco, CA 94133
+* All Season Florist and Gifts - 690 Commercial St., San Francisco, CA 94111
+* Ah Sam Floral Co - 2645 S El Camino Real, San Mateo, CA 94403
+* Oak Creek Florist - 2820 Broadmoor Ave, Concord, CA 94520
+
+### Links
+
 [Maps of Memorial Locations and Florist
 Shops](https://www.google.com/maps/d/edit?mid=1RVRWFvcykalBBGwqFTUhyqMKUcZ3gGq-&usp=sharing)
 
